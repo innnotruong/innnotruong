@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @innnotruong
+- 👋 Hi, I’m @innno_
 - 👀 I’m interested in knowledge
 - 🌱 I’m currently learning tech writing
 - 📫 Send me an email: mytruong1372@gmail.com
